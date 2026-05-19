@@ -78,7 +78,7 @@
 
 ## 🌐 Connect With Me
 
-📧 Email: your-singhanushtha079@gamil.com
+📧 Email: singhanushtha079@gamil.com
 💼 LinkedIn: https://www.linkedin.com/in/anushtha-singh-33a961289
 🐙 GitHub: https://github.com/singhanushtha2004
 
